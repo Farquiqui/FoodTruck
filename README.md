@@ -1,5 +1,5 @@
 # Pristine Peanuts
-[https://farquiqui.github.io/TastyTrek/)](https://farquiqui.github.io/PristinePeanuts/)](https://farquiqui.github.io/PristinePeanuts/)
+[https://farquiqui.github.io/TastyTrek/)
 
 This link does not work anymore.
 
